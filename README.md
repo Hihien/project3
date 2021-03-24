@@ -1,3 +1,3 @@
 # Project 3
 
-Đồ án này chị lại gánh
+Dễ! Đồ án này chị lại gánh.
